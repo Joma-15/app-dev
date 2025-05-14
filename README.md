@@ -1,6 +1,6 @@
 # ⚔️ My Favorite Anime: *Black Clover*
 
-![Black Clover](https://upload.wikimedia.org/wikipedia/en/9/9a/Black_Clover_volume_1_cover.jpg)
+![Black Clover](https://tse1.mm.bing.net/th/id/OIP.-InD0NtwyQihMPVU8H22hQHaD4?rs=1&pid=ImgDetMain)
 
 ## **Overview**
 **Black Clover** is a Japanese anime based on the manga by Yūki Tabata. It follows the story of **Asta**, a boy born without magic in a world where magic is everything, and his journey to become the **Wizard King**.
